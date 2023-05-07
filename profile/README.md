@@ -30,4 +30,12 @@ Our server also supports players from mobile and bedrock versions. Join our Disc
 - Friendly staff
 - Vote rewards
 
-Join our community NOW and start your Minecraft adventure with us! 
+### Social Links
+
+- Facebook Page: [Dark Crafters BD](https://www.facebook.com/darkcraftersbd)
+- Facebook Group: [Dark Crafters BD](https://www.facebook.com/groups/darkcraftersbd)
+- Twitter: [DarkCraftersBD](https://twitter.com/DarkCraftersBD)
+- Instagram: [@darkcraftersbd](https://www.instagram.com/darkcraftersbd)
+- Discord: [Dark Crafters BD](https://discord.gg/dark-crafters-bangladesh-minecraft-community-797125529031016448)
+
+Join our community NOW and start your Minecraft adventure with us!
